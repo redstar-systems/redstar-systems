@@ -1,3 +1,1 @@
-## The beginning
-🔴🕳️
-![logo-octopus-concepts-2](https://github.com/user-attachments/assets/c4b5e6c6-d9f1-4aa0-89ae-cc348e0eefa4)
+<img width="713" height="409" alt="Screenshot 2026-05-04 at 10 28 30 PM" src="https://github.com/user-attachments/assets/daca00eb-af33-4530-97cf-e187386d72f3" />
